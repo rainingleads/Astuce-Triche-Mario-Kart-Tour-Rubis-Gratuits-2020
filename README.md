@@ -11,7 +11,7 @@ Cet outil de triche dont on vous parle, c’est un générateur de Rubis et Piè
 CE GÉNÉRATEUR A ÉTÉ UTILISÉ 252 FOIS AUJOURD’HUI
 
 
-[![CLIQUEZ ICI](https://i.imgur.com/1Km5diM.jpg)](https://dis.rocks/c64jk)
+[![CLIQUEZ ICI](https://i.imgur.com/1Km5diM.jpg)](https://todayinfos.us/mariokartfr/?github)
 
 Qu’est-ce que c’est ce générateur ?
 
@@ -44,4 +44,4 @@ Le seul point négatif, c’est bien sûr ce système de Rubis et Pièces  qui f
 
 Mario Kart Tourez bien !
 
-[![CLIQUEZ ICI](https://i.imgur.com/1Km5diM.jpg)](https://dis.rocks/c64jk)
+[![CLIQUEZ ICI](https://i.imgur.com/1Km5diM.jpg)](https://todayinfos.us/mariokartfr/?github)
